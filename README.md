@@ -19,3 +19,4 @@ retro
 saturno
 snipe
 buy
+risk
