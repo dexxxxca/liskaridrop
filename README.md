@@ -5,3 +5,4 @@ ASK FIRST CODE
 fantom
 ear
 rarible
+reden
