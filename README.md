@@ -4,3 +4,4 @@ NEW LOGO
 ASK FIRST CODE
 fantom
 ear
+rarible
