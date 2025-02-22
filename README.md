@@ -1,17 +1,17 @@
 # liskaridrop
-new logo onchain LISK
-NEW LOGO
-ASK FIRST CODE
-fantom
+veloce
+logo
+ask
+phantom
 ear
-rarible
+hand
 reden
 usually
 ritual
-aron
+forgot
 poor
 jack
-all
+rice
 kick
 room
 scape
