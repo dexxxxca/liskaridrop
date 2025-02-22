@@ -20,3 +20,4 @@ saturno
 snipe
 buy
 risk
+always
