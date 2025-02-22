@@ -11,3 +11,4 @@ ritual
 aron
 poor
 jack
+all
