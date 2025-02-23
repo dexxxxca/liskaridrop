@@ -22,4 +22,3 @@ buy
 risk
 always
 yours
-12
