@@ -1,4 +1,4 @@
-1111111111# liskaridrop
+lisk airdrop
 veloce
 logo
 ask
