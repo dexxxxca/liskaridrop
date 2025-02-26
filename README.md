@@ -1,3 +1,4 @@
+delete
 lisk airdrop
 veloce
 logo
