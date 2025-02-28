@@ -1,4 +1,4 @@
-00000000000o0ooo
+
 you
 kipol
 today
