@@ -1,8 +1,4 @@
-aaaaaaaaaaaaaaaaaaaaa
-kipol
-todaya
-pop
-uluwatu
+
 ask 
 pool
 Range
