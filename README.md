@@ -1,7 +1,4 @@
-aaaaaaaaaaaaaaaaaaseeaee
-pooi
-ioio
-you
+
 kipol
 today
 pop
