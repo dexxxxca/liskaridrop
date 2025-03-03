@@ -1,4 +1,4 @@
-g
+gg
 ask 
 pool
 Range
