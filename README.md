@@ -1,4 +1,4 @@
-
+d
 Range
 delete
 lisk airdrop
