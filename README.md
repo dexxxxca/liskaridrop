@@ -1,6 +1,6 @@
 sdddjkiol
 Range
-delete
+deleted
 lisk airdrop
 veloce
 logo
