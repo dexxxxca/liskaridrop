@@ -1,5 +1,4 @@
-vevtevvetvev3tvtvtv545445g45gg5sftrsffsfsfvfsf
-deleted
+delete
 lisk airdrop
 veloce
 logo
