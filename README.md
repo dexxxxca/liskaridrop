@@ -1,4 +1,4 @@
-dfddfdfdfdferererrewewwewewewewwerdelete
+delete
 lisk airdrop
 veloce
 logo
