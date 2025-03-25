@@ -1,4 +1,4 @@
-4gqqg4qrggqgreqgqeg4qgq5egeqwg5ewgerberrtbrdbdfbbvbafdbffadgadsgafgaafdgasdfgffgfddelete
+
 lisk airdrop
 veloce
 logo
