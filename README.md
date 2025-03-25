@@ -1,4 +1,4 @@
-delete
+fgfddelete
 lisk airdrop
 veloce
 logo
