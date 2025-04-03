@@ -1,4 +1,5 @@
-dps
+
+tell dps
 lisk airdrop
 veloce
 logo
