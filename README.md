@@ -1,3 +1,4 @@
+host
 new
 nice
 tell dps
