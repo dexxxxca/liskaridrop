@@ -1,3 +1,4 @@
+new
 nice
 tell dps
 lisk airdrop
