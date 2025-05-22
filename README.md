@@ -1,4 +1,4 @@
-
+nice
 tell dps
 lisk airdrop
 veloce
