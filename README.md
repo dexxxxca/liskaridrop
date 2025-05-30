@@ -1,3 +1,4 @@
+mic no 
 bar
 cooldot
 sun
