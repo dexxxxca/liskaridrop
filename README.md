@@ -1,3 +1,4 @@
+READY
 wyf
 mic no 
 bar
