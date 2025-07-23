@@ -1,3 +1,4 @@
+alb
 kilo
 çop
 ñol
