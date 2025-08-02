@@ -1,3 +1,4 @@
+only
 alarm
 10 days
 total
