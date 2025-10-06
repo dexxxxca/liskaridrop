@@ -1,3 +1,4 @@
+kolp
 niu
 polio
 kilo
