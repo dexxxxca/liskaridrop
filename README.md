@@ -1,38 +1,4 @@
 
-salt
-romillo 
-bar
-cooldot
-sun
-track
-jump
-save
-radu
-problem
-aeat
-host
-new
-nice
-tell dps
-lisk airdrop
-veloce
-logo
-ask
-phantom
-ear
-hand
-reden
-usually
-ritual
-forgot
-poor
-jack
-rice
-kick
-room
-scape
-retro
-saturno
 snipe
 buy
 risk
