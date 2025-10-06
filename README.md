@@ -1,6 +1,1 @@
-
-snipe
-buy
-risk
-always
-yours
+1
