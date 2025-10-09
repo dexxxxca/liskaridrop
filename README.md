@@ -1,10 +1,1 @@
 GADSreadme
-AG
-GDAS
-WFE
-EW
-DSF
-GDS
-ADGS
-GADS
-AGD
