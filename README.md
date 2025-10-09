@@ -1,17 +1,1 @@
 readme
-fg
-df
-dfg
-dgf
-wert
-y54
-324
-5y
-45y
-1y5
-54y
-y24
-yr5y
-y5
-yrw
-545y
