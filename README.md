@@ -7,8 +7,3 @@ e553
 dtt
 dtg
 gtet
-tet5
-dggt
-dttt
-dt5
-dtte
