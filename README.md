@@ -8,12 +8,3 @@ asdf
 dsfa
 asdffd
 adsf
-asdfdfs
-asdf
-asdf
-dsffds
-dasdfs
-sadff
-sadf
-asdf
-fdsa
