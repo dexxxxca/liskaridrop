@@ -5,17 +5,6 @@ dfggfd
 dfgdf
 dfgffg
 sdfgf
-dfsfd
-dfsfg
-dfgfgd
-dfgsfdgs
-fgdfds
-dsfgf
-dsfgf
-dsfggf
-dsfggf
-dfggfd
-fdgsgfd
 dffg
 fdgfd
 dsffgd
