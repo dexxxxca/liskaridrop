@@ -8,13 +8,4 @@ dfgfgd
 dfggfd
 dfgfdg
 dfgsfgd
-dfsggfd
-dsffgd
-dffdg
-dfgsfgd
-fdgfdg
-dfgfdg
-dfgsfdg
-dfgdsf
-dfgsfgd
 dffdg
